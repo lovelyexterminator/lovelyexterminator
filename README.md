@@ -7,6 +7,11 @@
 
 <p align="center">i forgot how to center images too
 
+<h1 align="center">SPOILER ALERT</h1>
+
+<h align="center">
+
+                                  IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.
 
 https://github.com/user-attachments/assets/de25fcf4-f67d-45c5-80f3-88ebf51c976c
 

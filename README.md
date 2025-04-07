@@ -5,7 +5,7 @@
 </p>
 
 
-                     IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
+                                 IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
                                 
 <p align="center"> I LOVE GROSS MEN GOD PLEAAAAAAAAAAAASE 
 

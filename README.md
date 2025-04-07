@@ -1,4 +1,4 @@
-<p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING WEIRDO ! ₊
+<p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING FREAK ! ₊
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/bedbf3e3-63b8-42d1-b678-5b25be9c7d67" />

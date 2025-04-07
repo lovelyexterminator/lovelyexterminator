@@ -1,29 +1,14 @@
+<p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING WEIRDO ! ₊
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/bedbf3e3-63b8-42d1-b678-5b25be9c7d67" />
+</p>
 
 
+                     IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
+                                
+<p align="center"> I LOVE GROSS MEN GOD PLEAAAAAAAAAAAASE 
 
-<h1 align="center">old github got taken down</h1>
+<p align="center"> ◡  nonhuman IM A FUCKING CYBORG REAL!
 
-
-
-<p align="center">i forgot how to center images too
-
-<h1 align="center">SPOILER ALERT</h1>
-
-<h align="center">
-
-                                  IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.
-
-https://github.com/user-attachments/assets/de25fcf4-f67d-45c5-80f3-88ebf51c976c
-
-<p align="center">um this page is a huge wip cus im too lazy to make it the same as it was on my prev acc
-
-<h1 align="center">
-
-[strawpage](https://kenshisunderageboytoy.straw.page) 
-
-[atabook](https://dexter.atabook.org/)
-
-<p align="center"
-
-crazy
 

@@ -18,6 +18,7 @@
 <p align="center">
 <a href="https://totallynormalstrawpage.straw.page" rel="nofollow">STRAWPAGE !</a>  .
 <a href="https://dexter.atabook.org/" rel="nofollow">ATABOOK !</a>  
-</p>
 
+<p align="center">
+strawpage made for pc <3 
 

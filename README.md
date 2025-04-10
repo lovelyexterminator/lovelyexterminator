@@ -1,5 +1,11 @@
 <p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING FREAK ! ₊
 
+<div align="center">
+
+![](https://komarev.com/ghpvc/?username=absolutelynormalindividual&color=red) 
+
+</div>
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/bedbf3e3-63b8-42d1-b678-5b25be9c7d67" />
 </p>

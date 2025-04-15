@@ -24,7 +24,7 @@
 <p align="center">   hi pony towners
 
 <p align="center">
-<a href="https://totallynormalstrawpage.straw.page" rel="nofollow">STRAWPAGE !</a>  .
+<a href="https://boombayahchickenjockey.straw.page" rel="nofollow">STRAWPAGE !</a>  .
 <a href="https://dexter.atabook.org/" rel="nofollow">ATABOOK !</a>  
 
 <p align="center">

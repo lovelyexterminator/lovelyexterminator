@@ -7,7 +7,8 @@
 </div>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/92faaa67-abf9-4a0d-a331-19eba6dc545f" />
+  <img src="https://github.com/user-attachments/assets/4a6724dd-85e3-48a5-bf33-c16aca7261dc"
+ />
 </p>
 
 

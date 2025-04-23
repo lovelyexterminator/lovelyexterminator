@@ -16,7 +16,7 @@
 
                           IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
                                 
-<p align="center"> Mark & Jared's nr 1 fan / glazer 
+<p align="center"> Mark/Jared & Trots nr 1 fan / glazer 
 
 
 

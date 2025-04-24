@@ -25,8 +25,7 @@
 <p align="center">   hi pony towners
 
 <p align="center">
-<a href="https://boombayahchickenjockey.straw.page" rel="nofollow">STRAWPAGE !</a>  .
-<a href="https://dexter.atabook.org/" rel="nofollow">ATABOOK !</a>  
+<a href="https://rentry.co/top10leastretardeddextermoments" rel="nofollow"> rentry  </a>  
 
 <p align="center">
 strawpage made for pc btw errr 

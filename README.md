@@ -28,5 +28,4 @@
 <a href="https://rentry.co/top10leastretardeddextermoments" rel="nofollow"> rentry  </a>  
 
 <p align="center">
-strawpage made for pc btw errr 
-
+old men yaoi drool

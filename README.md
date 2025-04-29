@@ -19,7 +19,7 @@
 
                           IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
                                 
-<p align="center"> Mark/Jared & Trots nr 1 fan / glazer 
+<p align="center"> all my favs #1 glazer idk vro  i love them all 
 
 
 

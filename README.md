@@ -7,8 +7,11 @@
 </div>
 
 <p align="center">
-  <img src="pobierz__67_-removebg-preview](https://github.com/user-attachments/assets/95cbd359-0507-4f10-96fe-709e860646ec"/>
+  <img src="https://github.com/user-attachments/assets/4206e23f-c27e-4edb-9157-6bb847d6a217"/>
 </p>
+
+
+
 
 
 

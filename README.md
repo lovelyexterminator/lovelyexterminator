@@ -2,13 +2,14 @@
 
 <div align="center">
 
-![](https://komarev.com/ghpvc/?username=absolutelynormalindividual&color=green) 
+![](https://komarev.com/ghpvc/?username=absolutelynormalindividual&color=grey) 
 
 </div>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/65a0254c-c192-47cd-b470-6ce57cd5e3b9"/>
+  <img src="https://github.com/user-attachments/assets/37fddaac-6e46-46f2-84d5-716da318b60e"/>
 </p>
+
 
 
 

@@ -7,8 +7,9 @@
 </div>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/37fddaac-6e46-46f2-84d5-716da318b60e"/>
+  <img src="https://github.com/user-attachments/assets/561af021-d2a6-4c60-b45d-16d492882b80"/>
 </p>
+
 
 
 
@@ -30,7 +31,7 @@
 <p align="center">   hi pony towners
 
 <p align="center">
-<a href="https://rentry.co/top10leastretardeddextermoments" rel="nofollow"> rentry  </a>  
+<a href="https://rentry.co/drpio" rel="nofollow"> rentry  </a>  
 
 <p align="center">
 old men yaoi drool

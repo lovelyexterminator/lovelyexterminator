@@ -6,6 +6,9 @@
 
 </div>
 
+<p align="center"> C + H ALWAYYYYS WELCOME
+
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/0a512f2c-4fff-4451-803c-8675858e34d4"/>
 </p>

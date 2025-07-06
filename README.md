@@ -2,7 +2,12 @@
   <img src="https://github.com/user-attachments/assets/ac489064-b0c8-400d-b93b-b0325271ff10"/>
 </p>
 
-<p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING FREAK ! ₊
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/2ecd22af-6a00-48e0-bab3-a4ae7d65a04f"/>
+</p>
+
+
+<p align="center">◝(ᵔᗜᵔ)◜ 
 
 <div align="center">
 

@@ -51,9 +51,6 @@
 <p align="center">   hi pony towners
 
 
-<p align="center">
-  <img src="https://github.com/user-attachments/assets/e1da36cf-708e-4f0b-a072-be1be106e457"/>
-</p>
 
 <p align="center">
 <a href="https://rentry.co/deXXXpio" rel="nofollow"> rentry  </a>  

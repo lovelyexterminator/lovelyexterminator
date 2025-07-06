@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/ac489064-b0c8-400d-b93b-b0325271ff10"/>
+</p>
+
 <p align="center">◝(ᵔᗜᵔ)◜ CERTIFIED FUCKING FREAK ! ₊
 
 <div align="center">

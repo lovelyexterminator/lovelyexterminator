@@ -37,7 +37,9 @@
 
 
 
-                          IM NOT OKAY IN EVERY SENSE OF THE WORD, PLEASE INTWEC IF WEIRDOS BOTHER YOU.    
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/26736d53-cafb-4bde-9493-29721c30a275"/>
+</p>    
                                 
 <p align="center"> all my favs #1 glazer idk vro  i love them all 
 

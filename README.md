@@ -7,6 +7,7 @@
 </p>
 
 
+
 <p align="center">◝(ᵔᗜᵔ)◜ 
 
 <div align="center">
@@ -19,7 +20,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/c5928f43-f08a-42f8-8a4b-f963e2041e2c"/>
+  <img src="https://github.com/user-attachments/assets/675889bd-70b3-4188-b93e-9914fa973903"/>
 </p>
 
 

@@ -1,10 +1,12 @@
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/ac489064-b0c8-400d-b93b-b0325271ff10"/>
+  <img src="https://github.com/user-attachments/assets/38e00eb5-e871-4e02-8952-af0b63dbac41"/>
 </p>
 
 <p align="center">
   <img src="https://github.com/user-attachments/assets/2ecd22af-6a00-48e0-bab3-a4ae7d65a04f"/>
 </p>
+
+
 
 
 
@@ -20,7 +22,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/675889bd-70b3-4188-b93e-9914fa973903"/>
+  <img src="https://github.com/user-attachments/assets/18d6d5e1-b449-4e49-8be1-38a497e98a50"/>
 </p>
 
 
@@ -40,10 +42,11 @@
 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/26736d53-cafb-4bde-9493-29721c30a275"/>
+  <img src="https://github.com/user-attachments/assets/a5fbb627-8949-4a8c-84ee-a4f525342941"/>
 </p>    
                                 
 <p align="center"> all my favs #1 glazer idk vro  i love them all 
+
 
 
 
@@ -59,7 +62,7 @@
 
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/281d9d79-7aa9-45a7-8fa3-75c7743b7b8a"/>
+  <img src="https://github.com/user-attachments/assets/410f0380-966f-4f54-a101-d6b57d1011b7"/>
 </p>    
 
 <p align="center">   if you harass me , i won't reply . youre just annoying atp

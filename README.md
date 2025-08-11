@@ -6,7 +6,7 @@
 </div>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/32af8906-5811-44e8-9817-a1ba65961a68"/>
+  <img src="https://github.com/user-attachments/assets/6e6c7c38-8d43-42f1-a9bc-22efa668ffd9"/>
 </p>
 
 <p align="center"> ⟢ C + H always welcome 𐔌՞. .՞𐦯

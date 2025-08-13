@@ -5,6 +5,8 @@
 
 </div>
 
+<p align="center">  banned on pony town for 7 days LAWL! 
+
 <p align="center">
   <img src="https://github.com/user-attachments/assets/eb9235cd-446e-40a4-8eb0-daacd1d1d801"/>
 </p>

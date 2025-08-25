@@ -5,6 +5,8 @@
 
 </div>
 
+<p align="center">  hi perma banned from pt lol
+
 <p align="center">  
 
 <p align="center">

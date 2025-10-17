@@ -5,7 +5,7 @@
 
 </div>
 
-<p align="center">  hi perma banned from pt lol
+<p align="center">  main acc perma banned on pt lmao
 
 <p align="center">  
 

@@ -5,7 +5,7 @@
 
 </div>
 
-<p align="center">  main pt acc perma banned lawl
+<p align="center">  weirdo
 <p align="center">  
 
 <p align="center">
